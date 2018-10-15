@@ -1,2 +1,2 @@
 # namangoyalabh
-computer
+computer science engineering
